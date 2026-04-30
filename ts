@@ -1,8 +1,4 @@
 telangana file
 tg file 
-statse
-dand
-csdamdm'
-lmzsd
-vbbcbbfchbfgdfgdfgdf
-cvcvcbcbfbfbbbbb
+stddddsd
+gvhghh
